@@ -5,6 +5,11 @@ every skin there is instafade and hides everything but accuracy and **FREAKING C
 
 -------------------------------------------------
 
+**menu screenshot😼**
+![meow](https://osu.ppy.sh/ss/19434806/c191)
+
+-------------------------------------------------
+
 **template i usually use for all skins [Download](https://drive.google.com/file/d/1c8ozODaLhIlvVBbvrlkDTyHIPtAj2wKf/view?usp=drive_link)**
 
 -------------------------------------------------
