@@ -32,6 +32,12 @@ red skin [Download](https://drive.google.com/drive/folders/1rgy8vVplIE47VTnntmHB
 
 -------------------------------------------------
 
+red skin **2** [Download](https://drive.google.com/drive/folders/1rgy8vVplIE47VTnntmHB3tb7kmaBnNT7?usp=drive_link)
+
+![red 2](https://i.imgur.com/8ddwCGj.png)
+
+-------------------------------------------------
+
 blue skin [Download](https://drive.google.com/drive/folders/1rgy8vVplIE47VTnntmHB3tb7kmaBnNT7?usp=drive_link)
 
 ![blue](https://i.imgur.com/vEwavFG.jpeg)
